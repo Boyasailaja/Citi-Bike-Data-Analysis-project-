@@ -1,5 +1,4 @@
-<img width="220" height="220" alt="image" src="https://github.com/user-attachments/assets/a79ad50a-520b-4695-a1b0-f46ba745425f" />
- Key Insights:
+🏍️Key Insights:
 
 Overall Trip Usage:
 
