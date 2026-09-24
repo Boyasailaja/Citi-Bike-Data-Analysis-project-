@@ -1,4 +1,4 @@
-Key Insights:
+🏍️ Key Insights:
 
 Overall Trip Usage:
 
